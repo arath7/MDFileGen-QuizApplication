@@ -1,0 +1,11 @@
+- [[What is the capital of India:::New Delhi]]
+- [[What is the current year ::: 2026]]
+- [[When was the Declaration of Independence signed?
+- ::: August 2, 1776]]
+- [[Who is Abraham
+- Lincoln?
+- ::: 
+- He was the 16th president of the United States]]
+- [[Who is Luke Skywalker's father?:::Darth Vader]] star wars [[Who is Princess Leia's mother? Padme Amidala]] [[hello]] here
+- [[Who is Yoda? ::: Yoda is green]] [[Where is my bed?
+- ::: in my room]]
